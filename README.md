@@ -1,1 +1,1 @@
-# My-businessStrikePoint
+# My-business StrikePoint
